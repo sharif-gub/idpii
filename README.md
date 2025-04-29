@@ -1,2 +1,2 @@
 Green University
-United Kanchan (UK)
+United Kanchan of Bangladesh(UKB)
